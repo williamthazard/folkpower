@@ -14,3 +14,4 @@ don't restrain on assigning yourself a 🟣️ on the same category than someone
 |                 | design - identity | design - photos | design - illustrations | design - page format | writing - PLAY | writing - MAKE | writing - others | bonus CD | logistics | promotion |
 |-----------------|-------------------|-----------------|------------------------|----------------------|----------------|----------------|------------------|----------|-----------|-----------|
 | @eigen / Jordan | 🟣️️️                | 🔶️️              |                        | 🔶️️                   |                |                |                  |          |           |           |
+| @awwaiid / Brock |                  |                |                        |                     |                |  🔶️️              |                  |          |           |           |
