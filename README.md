@@ -6,7 +6,7 @@ don't restrain on assigning yourself a 🟣️ on the same category than someone
 
 
 - 🟣️: i absolutely want to be on that aspect
-- 🔶️: i'm ok on working on that aspect AND am already (somewhat) profiscient on it
+- 🔶️: i'm ok on working on that aspect AND am already (somewhat) proficient on it
 - 🟢️: i'd like to work on that aspect but have much to learn
 
 
